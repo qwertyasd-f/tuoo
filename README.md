@@ -1,1 +1,1 @@
-# tuoo
+https://s1.welib-public.org/hs6/libgenrs_nonfiction/894000/0e68813da0088691fd728de6488c429a~/1755672833.g3uva3fht94isSSpALBkMw/Calculus I with precalculus - a one-year course -- Ron Larson, Bruce H. Edwards; with the assistance of David -- ( WeLib.org ).pdf
